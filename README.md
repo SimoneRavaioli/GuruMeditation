@@ -2,4 +2,4 @@
 
 Badging Guru Test
 
-I remembe the time I was using an Amiga 500
+I remember the time I was using an Amiga 500
